@@ -1,0 +1,9 @@
+Ingredientes para Tarta Selva negra
+Para el bizcocho genovés de chocolate:
+120 gr. azúcar.
+90 gr. harina.
+30 gr. cacao en polvo.
+4 huevos.
+½ cdita. sal.
+Para la crema chantillí montada: 1 l. de nata para montar 38% M.G. y 100 gr. azúcar.
+Para el almíbar: 100 ml. agua , 75 gr. azúcar y 2 cdas. de licor Kirsch
